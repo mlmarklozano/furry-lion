@@ -1,5 +1,5 @@
 I'm an Engineer by profession and a adventurer by heart.
-I play games if I have the spare time.(once a year maybe. lol)
+I play games if I have the spare time.(once a year maybe. :) )
 
 I share my knowledge by creating Codes and helping clients build their ideal websites.
 
